@@ -2,4 +2,4 @@
 
 ### The First Chapter
 
-We open on a cold and grey December.
+We open on a cold and grey December. No we don't, we open in sunny July!
